@@ -7,6 +7,7 @@ Dough:
 - 4 tbsp oil
 - 1 egg (white and yolk)
 - 0.1 L warm water
+- pinch salt
 
 Knead until homogeneous. Add flour for it to not stick.
 Divide in two balls. Cover with flour and let sit covered
