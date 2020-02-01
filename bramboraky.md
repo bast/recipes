@@ -11,5 +11,7 @@
 - Add cumin, salt, and marjoram
 
 Fry on a pan with butter/margarine and turn once the sides a browning.
+I typically apply the butter/margerine from the "outside" and let it melt
+from the sides under the bramborák.
 
 Enjoy hot, either with salt or with jam.
