@@ -5,7 +5,7 @@
 - 10 large potatoes, wash and peel
 - rasp 5 of these coarse, 5 of them finer
 - add two eggs
-- add two handfuls of flower
+- add two handfuls of flour
 - a little bit of milk
 - 3-5 cloves of garlic
 - add cumin, salt, and marjoram
