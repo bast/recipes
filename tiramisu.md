@@ -23,7 +23,7 @@
 - Bowl B: whip, add 3 spoons of sugar, add mascarpone, whip until homogeneous
 - Bowl C: make whipcream out of the sweet cream, add 1 spoon of sugar
 - Stir C into B
-- Combine B+C into A, whip until homogeneous
+- Add A into B, whip until homogeneous
 - Soak biscuits **briefly** (otherwise they get soggy) in coffee and place them on tray, sugar side up
 - Cover biscuits with cream, just covering, not too much
 - Create layers: biscuit, cream, tiny layer of dark chocolate chips, biscuit, cream, layer of chocolate
