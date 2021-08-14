@@ -15,10 +15,15 @@
 
 ---
 
-### Then
+### 1 hour before you start
 
 - Take eggs and mascarpone out of the fridge and let them warm up
 - Make coffee, not too strong, let it cool to room temperature, add a shot of rum
+
+---
+
+### Then
+
 - Separate egg white (bowl A) from yolks (bowl B)
 - Bowl A: add a pinch of salt, then whip to homogeneous "snow", place in fridge
 - Bowl B: whip, add 3 spoons of sugar, add mascarpone, whip until homogeneous
