@@ -11,6 +11,7 @@
 - Ladyfinger biscuit (hard)
 - Coffee
 - 70% chocolate, grated
+- Tiny bottle of rum for baking
 
 ---
 
