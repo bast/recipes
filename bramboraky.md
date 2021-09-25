@@ -1,5 +1,3 @@
-
-
 # Bramboráky
 
 - 10 large potatoes, wash and peel

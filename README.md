@@ -1,2 +1,3 @@
+## Various recipes
 
-Various recipes. Enjoy and send suggestions/improvements.
+Enjoy and send suggestions/improvements.
