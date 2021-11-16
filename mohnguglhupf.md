@@ -9,7 +9,7 @@ After Johanna Maier's recipe.
 - 8 eggs 
 - 180 g sugar
 - 60 g powder sugar
-- 300 g poppyseed (ground)
+- 300 g poppyseed (ground; but I buy them whole and use a coffee grinder)
 - 150 g almond flour
 - Cinnamon
 - Vanilla sugar
@@ -37,7 +37,7 @@ After Johanna Maier's recipe.
 - Separate eggs into white (bowl A) and yolk (bowl B)
 - Melt butter and put to larger (glass) bowl C
 - Bowl C: add powder sugar, add 1 teaspoon vanilla sugar, a pinch of salt, a pinch of cinnamon, mix well
-- Slowly add egg yolk (bowl B) to bowl C
+- Slowly add egg yolk (bowl B) to bowl C while stirring
 - Bowl A (glass): Beat egg white to snow and add sugar
 - Manually mix 1/3 from bowl A into bowl C
 - Bowl C: carefully lift the poppyseed and almond flour and the snow under the egg yolk mass until homogeneous looking
